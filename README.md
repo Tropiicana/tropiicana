@@ -1,4 +1,4 @@
-![image](https://static.wikia.nocookie.net/pokemon-snakewood/images/7/72/Flygon.png/revision/latest?cb=20220124235221) ![image](https://static.wikia.nocookie.net/pokemonempyrean/images/e/eb/380.png/revision/latest?cb=20200825130043)
+![image](https://static.wikia.nocookie.net/pokemon-snakewood/images/7/72/Flygon.png/revision/latest?cb=20220124235221) ![image](https://www.pngplay.com/wp-content/uploads/11/Latias-Pokemon-Transparent-PNG.png)
 
 
 
