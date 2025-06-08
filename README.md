@@ -7,18 +7,17 @@
 
 
 
-> [!NOTE]
+> [!TIP]
 > For more detailed information feel free to check out my other links before interacting,
+> 
 > however, i dont mind too much just be respectful yknow!
 
-> [!TIP]
-> Helpful advice for doing things better or more easily.
 
 > [!IMPORTANT]
-> Key information users need to know to achieve their goal.
+> I will ALWAYS be c + h! Don't be afraid to interact :D
 
 > [!WARNING]
-> Urgent info that needs immediate user attention to avoid problems.
+> I am 16 so if you are uncomfortable 
 
 > [!CAUTION]
 > Advises about risks or negative outcomes of certain actions.
