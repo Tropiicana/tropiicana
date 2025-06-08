@@ -3,4 +3,4 @@
 
 ![](https://komarev.com/ghpvc/?username=tropiicana)
 
-
+Funfact; this is the one website where my profile isn't flygon !
