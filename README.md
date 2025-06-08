@@ -3,7 +3,7 @@
 
 ![](https://komarev.com/ghpvc/?username=tropiicana)
 
-> Funfact; this is the one website where my profile isn't flygon !
+> Funfact; this is the one website where my profile picture isn't flygon !
 
 
 ![image](https://cdn3.emoji.gg/emojis/14424-blue-divider.png)
