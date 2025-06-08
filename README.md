@@ -8,7 +8,8 @@
 
 
 > [!NOTE]
-> Useful information that users should know, even when skimming content.
+> For more detailed information feel free to check out my other links before interacting, however, i dont mind too much
+> just be respectful yknow!
 
 > [!TIP]
 > Helpful advice for doing things better or more easily.
