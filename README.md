@@ -3,11 +3,11 @@
 
 ![](https://komarev.com/ghpvc/?username=tropiicana)
 
-Funfact; this is the one website where my profile isn't flygon !
+> Funfact; this is the one website where my profile isn't flygon !
 
 
 
-> [!Hi]
+> [!TIP]
 > Useful information that users should know, even when skimming content.
 
 > [!TIP]
