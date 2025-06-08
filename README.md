@@ -10,7 +10,7 @@
 > [!TIP]
 > For more detailed information feel free to check out my other links before interacting,
 > 
-> however, i dont mind too much just be respectful yknow!
+> however, i dont mind if you do or not - just be respectful yknow!
 
 
 > [!IMPORTANT]
