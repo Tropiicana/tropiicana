@@ -31,5 +31,5 @@
 
 
 
-![image](https://pokemongo.fandom.com/wiki/File:Vaporeon_8bits.png) ![image](https://pokemongo.fandom.com/wiki/File:Flaaffy_8bits.png) ![image](https://pokemongo.fandom.com/wiki/File:Seel_8bits.png)
+![image](https://static.wikia.nocookie.net/pokemongo/images/d/d6/Vaporeon_8bits.png/revision/latest?cb=20200620153314) ![image](https://static.wikia.nocookie.net/pokemongo/images/a/ac/Flaaffy_8bits.png/revision/latest?cb=20200620150621) ![image](https://static.wikia.nocookie.net/pokemongo/images/7/7f/Seel_8bits.png/revision/latest?cb=20200620152537)
 
