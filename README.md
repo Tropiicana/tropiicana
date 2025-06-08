@@ -6,6 +6,7 @@
 > Funfact; this is the one website where my profile isn't flygon !
 
 
+![image](https://cdn3.emoji.gg/emojis/14424-blue-divider.png)
 
 > [!TIP]
 > For more detailed information feel free to check out my other links before interacting,
@@ -29,4 +30,4 @@
 
 
 ![image](https://cdn3.emoji.gg/emojis/14424-blue-divider.png)
-![image](https://cdn3.emoji.gg/emojis/14424-blue-divider.png)
+
