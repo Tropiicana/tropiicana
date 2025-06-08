@@ -1,4 +1,4 @@
-![image](https://static.wikia.nocookie.net/pokemon-snakewood/images/7/72/Flygon.png/revision/latest?cb=20220124235221) ![image](https://www.giantbomb.com/a/uploads/square_medium/13/135472/1891606-spr_4d_380.png)
+![image](https://static.wikia.nocookie.net/pokemongo/images/1/13/Flygon_8bits.png/revision/latest?cb=20200620150630) ![image](https://static.wikia.nocookie.net/pokemongo/images/e/e3/Latias_8bits.png/revision/latest/scale-to-width-down/250?cb=20200620151551)
 
 
 
