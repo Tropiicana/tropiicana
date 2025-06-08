@@ -22,4 +22,6 @@
 > but if you have an age dni then please follow your own criteria!
 
 > [!CAUTION]
-> Advises about risks or negative outcomes of certain actions.
+> I am offtab more often than i am ontab so if you wanna talk to me i would
+>
+> highly reccomend sending a private chat !! i am not ignoring you !
