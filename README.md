@@ -25,3 +25,8 @@
 > I am offtab more often than i am ontab so if you wanna talk to me i would
 >
 > highly reccomend sending a private chat !! i am not ignoring you !
+
+
+
+![image](https://cdn3.emoji.gg/emojis/14424-blue-divider.png)
+![image](https://cdn3.emoji.gg/emojis/14424-blue-divider.png)
