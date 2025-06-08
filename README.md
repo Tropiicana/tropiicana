@@ -1,5 +1,6 @@
 ## Hi there 👋
-https://camo.githubusercontent.com/f2c9f2ef887b1cd5e8bef4325766bbe18ddde3ddf1165cfb02597dee9afaa1cc/68747470733a2f2f6b6f6d617265762e636f6d2f67687076632f3f757365726e616d653d6368657272796669697a7a
+![](https://komarev.com/ghpvc/?username=tropiicana)
+
 <!--
 **Tropiicana/tropiicana** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
