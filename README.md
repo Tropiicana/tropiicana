@@ -7,7 +7,7 @@ Funfact; this is the one website where my profile isn't flygon !
 
 
 
-> [!NOTE]
+> [!Hi]
 > Useful information that users should know, even when skimming content.
 
 > [!TIP]
