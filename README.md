@@ -18,7 +18,7 @@
 > I will ALWAYS be c + h! Don't be afraid to interact :D
 
 > [!WARNING]
-> I am 16 - i personally do not mind anyone interacting with me
+> I am 17 - i personally do not mind anyone interacting with me
 >
 > but if you have an age dni then please follow your own criteria!
 
